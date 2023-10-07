@@ -1,33 +1,41 @@
 Reaver
+
 (this story is with screen play so don’t mind just imagine)
 
 NOTE : THIS STORY IS TOTALLY FICTIONAL.TO READ IT AS A FICTION STORY DO NOT COMPARE WITH ANYTHING ELSE.
 
 About author:
+
 This is A Abdul Faheem from India, not a professional writer I just write for entertainment purposes and to make games out of the stories and I use Git to host my stories so that anyone can suggest changes and also can read the content please don’t use this or any of my stories for your product such as books games movies, etc …. Please do not use.
+
 Chapter - Last Chapter : 
+
 The Most Merciful
+
 Blank screen display the chapter
 Blank screen
-sound of something heavy crashing ear blinding sound (stammering) my ma hmmm! (Taking a deep breath) ok! My mouth was filled with dust I was lying on my back at the edge of some mountain when I turn around,I saw her the last time,(blank screen) I don’t remember exactly but.
-All I remember that.that was her. she was holding a branch and fetching her right hand towards me ,her face was covered I don’t remember her face all I remember was her last words “مع السلامة” ( good bye) “mae alsalama” (black screen).
-I remember something like I was near him (god but don’t show him ) Then I saw my hands, yea my hands were covered in red blood. then all I remember was my hands shivering then I held his (God’s) hands and made that promise.
+sound of something heavy crashing ear blinding sound (stammering) my ma hmmm! (Taking a deep breath) ok! My mouth was filled with dust I was lying on my back at the edge of some mountain when I turn around,I saw her for the last time,(blank screen) I don’t remember exactly but.
+All I remember was that.that was her. she was holding a branch and fetching her right hand towards me ,her face was covered I don’t remember her face, all I remember was her last words “مع السلامة” ( good bye) “mae alsalama” (black screen).
+I remember something like I was near him (god but don’t show him ) Then I saw my hands, they where covered in red blood. then all I remember was my hands shivering then I held his (God’s) hands and made that promise.
 
 Then play music – Merciful-1.m4a
  
 Chapter - 1 : 
+
 badhr – (sowing)
+
+it all started by a creator, by a farmer who sow his seed of heart.
 Blank screen display the chapter
 Fade and display a white screen
 Fade and show space with beatuful stars a bright light and show little bigbang and zoom out and show him (god) from back (never show the face) doing some thing like taking light from the chest some one calling from behind My lord
 Gibirail > My lord the world has been created,Now I assume that you will take rest but you are creating something from your heart 
 God >hemmm! (Laughs) ,those are free ,few I made with out free will
 Gibirail > what is he free?, I hope he will not turn against you like he did.
-God > my heart is kind so do sprit of my heart,in his case I made him with mind ,mind may be powerful but heart is mother.
+God > my heart is kind don't you believe it.
 Gibirail looks confused and asks you want to defeate him.
 God > “smiles” gibirail! ( he smiles like Gibirail is innocent.)
 Gibirail > forgive me lord ,you are the most merciful, you are great and no one can be mighty than you
-Another day after me god made a weapon to kill me he sent a piece of it where I was flying
+after me god made a weapon to kill me he sent a piece of it where I was flying
 Gibirail > who is going to use this weapon to kill him 
 God > love , the thing which I sent wouldn’t kill him 
 Gibirail > you are the best of planners then why and what
@@ -36,12 +44,16 @@ And a body glowing which god created
 
 Chapter 2 : 
 
-Thats how I was born , glowing brighter than any sun.I never know what am I ? ,A weapon or the END.
-The brightness reduces then a baby is flying and some yellow light is glowing from its ass flying across the space then that baby urinates that urine touches a dead star then that star starts to shine at the poles of the star the radiation like thin beam shoots out To wards a planet now that system has 2 stars one star was dead
+beest - (beast)
+
+Thats how I was born , glowing brighter than any sun.I never know what am I ? ,A weapon.he never said me am I the beginning or the end.
+The brightness reduces then a baby is flying and some yellow light is glowing from its ass flying across the space then that baby urinates that urine touches a dead star then that star starts to shine at the poles of the star the radiation like thin beam shoots out To wards a planet which passed by me the light converged into a point and shot on beast now that system has 2 stars one star was dead
 I was so lovely even my urine gave 2 life’s that day a star and beast
 I had some knowledge of things like who was he they mentioned , there was a creation based on energy they are arch angel and few where made with different universal energy and matter he made many tribes they can shape shift but in anger or justice they look like dragon , they where made with black energy and white energy angels don’t have free will and black and white tribes called jinn , hinn .... But the black energy had high intelligence and restricted free will one day one angle made his tribe we call his tribe as Shayateen he had a structure of snake and mix of many animals,to say exactly dragon .he was so powerful he waged war but he was not powerful enough to defeate the creators army few where sent to hell under the heavy sky where now one can reach with out god will and no one can get out with gods will or other black and white begins after that he plot his revenge by targeting the humans on the earth he gave the knowledge of good and bad by giving them the lust of curiosity of hidden knowledge .
 
-Chapter 3 : Wǒ shì shéi? ( Who am I ?)
+Chapter 3 : 
+
+Wǒ shì shéi? ( Who am I ?)
 
 Jayabin markar ,he was the man who made weapons. He made the most powerful of them that nothing like that existed.
 One day he made dangerous discovery and he made a weapon based on that it besically does make the existing matter to anti matter so the whole planet can collapse.
