@@ -1,1 +1,3 @@
 A boy is study about moon one day he rally wants to see moon but he does not see it so  he wait for 1 week thinging that it noomoon day after 1 week he realise that there is mno moon in the sky so he complaints the police no one bother and he writes a letter to the pm so after a struggle he he under stand that the hmoon is there but due to the polution it is invisible so he cleans the polution and enjoyes the moon
+
+add some real Palestine events
