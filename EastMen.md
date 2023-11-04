@@ -45,6 +45,9 @@ H=hey man what happen!
 (level 3=to know what happen) =
 , travel time, To search for people, to click photos, get down and call the guard who is near the office gate] 
 <(story)=
+old new school zo old new school zombie story old new school zombie story old new school zombie story mb
+Bording school the orphan kids are taken for expriment and the old military base vr new school vs old scholl learn vr tought army of guns my school dream
+
 the guard turns and makes some noise which is unpleasant, the guard runs towards him and hero also runs the to save himself from him guard, but it catches his leg, the hero beats with his second leg. and runs back to his room (while hero was running many zombies are chasing)>
  [(hero dialogue) =H
 H=hey stay away
