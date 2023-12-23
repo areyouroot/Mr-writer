@@ -200,3 +200,13 @@ And one day he tells him that he complets the intial trining and tell him to jio
 Marfus mission after intial training and small missions before heart trainer (myluv) the mission had explained (in dream u had seen) they say that u have to join the pair race if u won it 1,2,3 u can able to meet catter’s sister the catter is doing some illegal mission,me and my mission patner[kgalus] they go to the race and drive and won 1,2,3,it does not matter the famous racer tisinous comes and say that they made  him to beleve that exprence is not everything and then he brokes glass in frount of catter’s sister (xxxxx) he tlks to her and spend time with her and she says to him no one in my life is interested on me they want my money etc are u one of them? She askes the anser is depend on the player he search for kgalus but he could find him he gets a message to reach to the briane tower and he can stay for one night he goes there he tries to sleep in his dreams he sees that at a top of the clif he leves someones hand and says I luv u he ,the brain tower is exactly above the catter’s lab which he was going spy his patner was not there he was alone and he forgot to close door because his patner will come , he was little bit in sleep
  Wake up and go to ust wash his face and he hear a noice he just ignore it but  again someone shout it has to be done or else it will be the red land of blood and damn! Sound he just run to see but it was xxxxxx with her last breath saying I love u just leave this place the flow   of blood cant be controled because its too late and she dies and he is kind of confused suddenly the blast out side the window 
 He  hides and runs from that place on a animal mostly some one try to shoot but noting happen to him he escapes from there suddewnly he sees  23 people with blue dress they shout the we are going to safe zone we cant handle it and he followsz them and they go into a bulding and he also go inside and the people allow him to go through and then a gurd ask him unit 47 had completed there job he sees the bord behind and it shows that the misssion had completed he says the same and then they leave him to safe zone and and he sees many shops and then from one he sees a clock shop he sees kgalus he give me a clock and keep his one hand on my mouth and he says some thing is to be broken and then I left from there and a small bed is alloted for me and he sees that the clock is broken and he just keep the clock 
+
+
+there is a saying you love her enough to let her go
+
+most people don't understand this ?
+they think why love her then, brother if she really loves you she will come back.
+
+if she didn't remember. your love is pure that she is happy.
+
+noone own anyone we all are god's children.
