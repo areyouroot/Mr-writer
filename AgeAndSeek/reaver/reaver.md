@@ -210,3 +210,21 @@ they think why love her then, brother if she really loves you she will come back
 if she didn't remember. your love is pure that she is happy.
 
 noone own anyone we all are god's children.
+
+chapter sealed lips-
+
+his name gives him power.
+
+that promise was a lie.
+
+sometimes the lips are just sealed for some reason. we do the meaning less things.
+
+so do happened that day the cosodium was over we all were drunk the Laila was dragging me to her room.
+
+at that point I saw husna eyes habibi knew what was going on.
+
+she could have scold that day but u can't because u love him who knows he does same u don't get rights
+
+I saw her disappointed look I know it still hurts 
+
+because her lips are sealed her lips are sealed.
