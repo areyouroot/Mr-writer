@@ -228,3 +228,13 @@ she could have scold that day but u can't because u love him who knows he does s
 I saw her disappointed look I know it still hurts 
 
 because her lips are sealed her lips are sealed.
+
+chapter filling void:
+
+Laila sees me with eyes filled with tears
+
+me: Laila sorry I didn't mean to hurt but sorry I cannot never be urs I am already husna's
+
+Laila : then I am blessed, blessed enough that I won't feel ur pain, blessed enough to never feel how emotional you are, blessed enough that I will not hurt u see u feel u Fahim
+
+me: (deep breath) yes you are blessed enough. that I am not your burden nor u are mine.
