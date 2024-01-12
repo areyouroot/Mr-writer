@@ -2,3 +2,12 @@ A girl is paralised but she can hear every thing see everything no movent or she
 The boy was a indian and he had alredy saw her in collage and she was her crush and love for first time 
 She had told him she want to write diary daily and read it daily 
 When she is paralised she cry at night he understands and take the diary and show her her story of nthat day he wrote and he sees the wish list and u know the things to be written and last wish was to tell ilove u to the boy he does her wish
+
+
+larey - why u would do that to her
+
+sam - I want her to come near me, you know how hard is to ignore her.
+
+I want her to remember me, I want her to love me. I already asked her I can't do that again.
+
+larey - hope she does. the part is friction and another is real..
