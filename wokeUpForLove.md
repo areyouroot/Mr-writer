@@ -14,6 +14,47 @@ larey - hope she does. the part is friction and another is real..
 
 
 
+a
+a
+a
+
+a.  to be continued 
+
+a
+
+a
+a
+aa
+
+a
+a
+aa
+a
+
+aa
+a
+a
+a
+a
+
+a
+
+a
+a
+aa
+
+
+a
+
+a
+
+aa
+a
+a
+a
+
+a
+a
 
 
 
