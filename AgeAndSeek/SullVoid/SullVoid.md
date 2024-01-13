@@ -31,3 +31,21 @@ SullVoid
 Chaper1 : tupitsa (numbskull)
 Chapter 2 : DECEPTION OF LUST
 
+there where different seal crafted by angel on their lords command.
+
+few seal knowledge was given to the prophets.
+
+sull calls them crown
+
+there was a crown he used to say the gods thron he use it to help people by their needs
+
+and there was a devil's crown he used it to order destruction.
+
+when he was asked why the gods throne I serve people so they serve me on the devil's crown.
+
+there where different creations of god
+
+and he wants none to exist
+
+the prophecy he lived with it he is appointed to blow the trumpet.
+
