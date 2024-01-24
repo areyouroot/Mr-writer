@@ -49,3 +49,6 @@ and he wants none to exist
 
 the prophecy he lived with it he is appointed to blow the trumpet.
 
+you and I are same,we want good to exist.
+but you are blindfolded I have wide open my eyes.  - sull last words
+
