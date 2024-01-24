@@ -238,3 +238,10 @@ me: Laila sorry I didn't mean to hurt but sorry I cannot never be urs I am alrea
 Laila : then I am blessed, blessed enough that I won't feel ur pain, blessed enough to never feel how emotional you are, blessed enough that I will not hurt u see u feel u Fahim
 
 me: (deep breath) yes you are blessed enough. that I am not your burden nor u are mine.
+
+you and I are same,we want good to exist.
+but you are blindfolded I have wide open my eyes.  - sull last words
+
+I didn't release his words until I realised his promise (god's) he asked me for one thing love and peace.
+
+if I understood that before, I know sulls sacrifice and I am the sull I am the sull
