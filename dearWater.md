@@ -3,18 +3,22 @@
 
 Dear water, why do you fall so clean from the sky,
 But turn dark the moment you kiss our parched land?
+
 Dear water, why flee our broken cans,
 While you sleep in tubs that never thirst?
+
 Dear water, why do they waste you without thought,
 While mothers measure drops with careful eyes?
 
 Dear water, why is poison poured with ease,
 While finding you feels like chasing life’s own meaning?
+
 Dear water, why do you shimmer in their glass,
 But taste of rust and rot in ours?
 
 Dear water, why do you rain with grace,
 Then leave us with mud and sickness?
+
 Dear water, why do you turn your back
 On hearts that never did you wrong?
 
