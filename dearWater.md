@@ -1,5 +1,5 @@
-![WhatsApp Image 2025-04-17 at 20 57 33_b9de0dd4](https://github.com/user-attachments/assets/43a9d1be-97ad-492d-96c5-335b23ba1eb3)![image](https://github.com/user-attachments/assets/c52613cf-01f6-4ea1-9f86-39cc999855d8)Dear Water
-by A. Abdul Faheem
+# Dear Water
+## by A. Abdul Faheem
 
 Dear water, why do you fall so clean from the sky,
 But turn dark the moment you kiss our parched land?
